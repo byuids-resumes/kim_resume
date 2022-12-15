@@ -21,7 +21,7 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 - 4.0 Major GPA
 - Full academic scholarship with 4.0 GPA
-- ACM-W - Precidency (Assistant)
+- ACM-W - Presidency (Assistant)
 
 ### Internships
 
